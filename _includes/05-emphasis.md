@@ -1,2 +1,2 @@
-**Friendliness
-_Conversational skills
+**Friendliness**
+_Conversational skills_
